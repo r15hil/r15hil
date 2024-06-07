@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @r15hil
-- 👀 I’m interested in things
-- 🌱 I’m currently learning stuff
+- 👀 I’m interested in pretty much everything
 - 💞️ I’m looking to collaborate on fun activities
 - 📫 Email me at: rp@rishilpatel.com
 
